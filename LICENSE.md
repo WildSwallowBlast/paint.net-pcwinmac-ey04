@@ -1,4 +1,4 @@
-# 
+# Professionnel Paint.NET extensions pour Mac OS | Gratuit Paint.NET extensions pour PC Windows. Avec timeline d'animation et effets dynamiques — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
